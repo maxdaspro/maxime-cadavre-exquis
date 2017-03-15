@@ -4,3 +4,5 @@ Un enfant se lève prend sa douche et déjeune, une matinnée tout à fait norma
 Sur le chemin il rencontre un homme étrange, tout habillé de noir. Soudain il est interpellé par une bruit derrière lui.
 Ce n'était que le vent.
 Qui fait prout.
+Il sort promener son sanglier tranquillement.  Un velo passe et le sanglier commence a tirer.  L'enfant tente de retenir le sanglier !
+
